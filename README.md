@@ -31,8 +31,9 @@ The first speaker of the day is <b>Mr. Gautam Murria</b> captivated us <mark>"th
 > Think you can build,simulateor strategize like a race engineer ?
 > want to experience motorspot logic without needing a car ?
 > Curious abput aero, fuel strategy , and data - based racing ?
-explain it very properly also tell us how to register in it. Image :![Image](https://github.com/user-attachments/assets/ace6948d-bbe6-4059-9891-fc392028d8cb
-After that,<b> Mrs. Shaffy Makkar</b> madam gave her session in which she told about the <mark>specialty of millets</mark> and she also told how they are prepared and what mistakes we make whilepreparing them.<mark>Millets is one such thing that by eating it we can keepthe doctor away and keep our body healthy and free from diseases</mark>.
+explain it very properly also tell us how to register in it.
+> Attach Image ;
+Afterrthat,<b> Mrs. Shaffy Makkar</b> madam gave her session in which she told about the <mark>specialty of millets</mark> and she also told how they are prepared and what mistakes we make whilepreparing them.<mark>Millets is one such thing that by eating it we can keepthe doctor away and keep our body healthy and free from diseases</mark>.
 
 ## DAY 5 (6 August 2025 ) ##
 When i went to auditorium at 9:30am , the first lecture was by <b>Dr. Parminder Singh</b> of <mark>Dean-Student Welfare</mark> .He told us about the hostel and the collage campus.We also came to know that our collage has <mark>17 playground , one girls common room, one girls and 3 boys hostels</mark> , and we came to know a lot more information of our campus.After this , A Expert Lecture by <b>Mr. Manpreet Singh</b> on <mark>"Fitness For Engineers"</mark>.Sir came and gave us a lot of information about health ,also told us about gym , how muscles are built , He also played a game of push-ups by calling eight boys on the stage togrther . Doubts related to children's health were also clearad . It was very interesting leacture.Expert Lecture by <b>Brigadier P.S. Cheema</b> sir was very motivational , logical, appriciateable and interestin leacture.For the warm welcome of Brigadier P.S. Cheema sir everyone in auditorium is stand and welcomed him ,whole auditorium was echoed with applaused.
