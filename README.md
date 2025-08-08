@@ -28,9 +28,9 @@ This Expert lecture by <b>Dr. priya Darshni Madam</b> , This topic is very impor
 ## DAY 4 (5 August 2025 ) ##
 My 4th day started at 1:30pm and suddenly our schedual changed on the spot and class was held in room 107 on the first floor. Our seniors told us very well about exam preparation and how the exams are conducted , what things are important, what not to do and what to do.
 The first speaker of the day is <b>Mr. Gautam Murria</b> captivated us <mark>"the motor sports "</mark> . They properly interduce us the <b>GENCONIAN CRAFT PRIX 3.0</b> ., 
-> Think you can build,simulateor strategize like a race engineer ?
-> want to experience motorspot logic without needing a car ?
-> Curious abput aero, fuel strategy , and data - based racing ?
+*Think you can build,simulateor strategize like a race engineer ?
+* want to experience motorspot logic without needing a car ?
+*Curious abput aero, fuel strategy , and data - based racing ?
 explain it very properly also tell us how to register in it.
 After that,<b> Mrs. Shaffy Makkar</b> madam gave her session in which she told about the <mark>specialty of millets</mark> and she also told how they are prepared and what mistakes we make whilepreparing them.<mark>Millets is one such thing that by eating it we can keepthe doctor away and keep our body healthy and free from diseases</mark>.
 
