@@ -31,7 +31,7 @@ The first speaker of the day is <b>Mr. Gautam Murria</b> captivated us <mark>"th
 > Think you can build,simulateor strategize like a race engineer ?
 > want to experience motorspot logic without needing a car ?
 > Curious abput aero, fuel strategy , and data - based racing ?
-explain it very properly also tell us how to register in it.
+explain it very properly also tell us how to register in it. Image :
 After that,<b> Mrs. Shaffy Makkar</b> madam gave her session in which she told about the <mark>specialty of millets</mark> and she also told how they are prepared and what mistakes we make whilepreparing them.<mark>Millets is one such thing that by eating it we can keepthe doctor away and keep our body healthy and free from diseases</mark>.
 
 ## DAY 5 (6 August 2025 ) ##
